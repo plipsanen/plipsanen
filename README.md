@@ -1,4 +1,4 @@
-## Hi!👋
+## Hi! I'm Paula!👋
 
 Studying: LAB University of Applied Sciences  
 Degree: Bachelor of Engineering, Information Technology  
